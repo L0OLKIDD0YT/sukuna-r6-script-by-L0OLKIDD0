@@ -1,1 +1,0 @@
-# sukuna-r6-script-by-L0OLKIDD0
